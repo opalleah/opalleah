@@ -10,3 +10,4 @@ Beyond the code, I'm an avid UI/UX enthusiast. I believe aesthetics play a vital
 I am excited to venture into application development. My goal is to architect immersive, forward-looking digital solutions.
 
 📫 How to reach me opalleah@gmail.com
+🔎Check out my portfolio opaljonesportfolio.com
